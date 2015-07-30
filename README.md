@@ -1,0 +1,2 @@
+# Flat-for-sale-in-Hyderabad
+BRC Infra is a fast growing enterprise focused on property development in South India. Established in 2003 as BR Constructions, the company’s growth story is characterized by its innovative practices.  BRC infra is a leading property development company in Hyderabad, Having ongoing and completed gated community projects in Hyderabad, Vizag, Vijaywada &amp; Guntur. Hyderabad's Ongoing project Sri Hemadurga Sivhills is a truly a master piece project with ready to occupy 2&amp;3BHK Luxury flats.
